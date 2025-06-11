@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @jo-nrw
-- 👀 I’m interested in Gayming, Mountainbiking and others
+- 👀 I’m interested in Gaming, Mountainbiking and others
 - 🌱 I’m currently learning "life"
 - 💞️ I’m looking to collaborate on RedBull Bikes
 - 📫 How to reach me discord: jo.nrw
